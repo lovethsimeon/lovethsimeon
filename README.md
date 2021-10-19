@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @lovethsimeon
+- 👀 I’m interested in Digital marketing, social media marketing,shopify store design an mareting ...
+- 💞️ I’m looking to collaborate onall digital marketing projects ...
+- 📫 How to reach me through whatsapp  https://wa.me/message/OS4EOFM6EHDEF1 ...
+
+<!---
+lovethsimeon/lovethsimeon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
